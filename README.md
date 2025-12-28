@@ -1,3 +1,5 @@
+![картинка](vedi.jpg)
+
 Holla Amigos!
 
 i`am Danonich 
