@@ -3,8 +3,8 @@
 Holla Amigos!
 
 i`am Danonich 
->#Learning Pentest🔍📊
+>♥ Learning Pentest🔍📊
 
->##Learning DevOps💻📊
+>♥ Learning DevOps💻📊
 
->###Learning Python🐍🐉  
+>♥ Learning Python🐍🐉  
